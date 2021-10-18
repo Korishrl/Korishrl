@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Korishrl
+- 👀 I’m interested in coding
+- 🌱 I’m currently learning discord bots
+- 💞️ I’m looking to collaborate on nothing
+- 📫 How to reach me - Discord KORISH#4465
